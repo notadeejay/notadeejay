@@ -1,3 +1,3 @@
 ## Hi there, I'm Amy 👋👩‍💻
 
-I'm a Product Manager who is passionate about using technology to create human-centered experiences. I mostly use this account to learn new languages or frameworks or to build apps for lolz.
+I'm a product manager and experienced technical curriculum developer passionate about using technology to create human-centered experiences. I primarily use this account to explore new languages, frameworks, and build apps for fun.
