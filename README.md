@@ -1,3 +1,3 @@
 ## Hi there, I'm Amy 👋👩‍💻
 
-I'm a product manager and experienced technical curriculum developer passionate about using technology to create human-centered experiences. I primarily use this account to explore new languages, frameworks, and build apps for fun.
+I'm a strategy and operations leader with a product mindset and a background in technical education. I use this space to explore new tools, automate workflows, and prototype ideas that make systems smarter and more human-centered. Always building, always learning.
